@@ -4,4 +4,4 @@ Medium Article : https://medium.com/@sanjaybhargav.madamanchi/short-story-on-fra
 
 Presentation Slides : https://www.slideshare.net/SanjayBhargavMadaman/shortstorypptx-257837843
 
-Demo video: 
+Demo video: https://youtu.be/vSLzs6NYpKA
